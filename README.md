@@ -1,7 +1,7 @@
 # Practica_EinesGoogle_SaúlRamírezMerán_BielBermejoGuzmán
 ---
-**Precentación:**
-[cr](https://goo.su/HIubBW)
+ceerer
+
 ---
 **Formulario:**
 
